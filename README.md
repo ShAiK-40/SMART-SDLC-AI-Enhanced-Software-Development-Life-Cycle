@@ -1,0 +1,1 @@
+# SMART-SDLC--AI-Enhanced-Software-Development-Life-Cycle
